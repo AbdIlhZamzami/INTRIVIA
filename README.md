@@ -1,3 +1,0 @@
-"# INTRIVIA" 
-"# INTRIVIA" 
-"# INTRIVIA" 
